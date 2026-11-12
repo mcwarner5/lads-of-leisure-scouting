@@ -1,0 +1,1 @@
+# lads-of-leisure-scouting
